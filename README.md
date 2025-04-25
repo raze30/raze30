@@ -1,4 +1,4 @@
-# 💫 Sleeping is the best.☝️
+# Sleeping is the best. 💫
 
 
 ## 🌐 Socials:
